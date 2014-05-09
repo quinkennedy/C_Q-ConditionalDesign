@@ -12,3 +12,8 @@
 
 ###Thoughts
 Lines can be formed by any or all parts of the body. Lines should be imagined to extend in both directions from the body across the space. Lines can intersect at any point, imagined or physicalized. While curving/reestablishing lines in space, participants can travel through space.
+
+###Afterthoughts
+* Modulating the metronome, to allow the study to vary from times of extreme pressure and times of extreme planning.
+    * This can extend to composing a piece which varies the time-segments within each musical movement.
+* We started thinking about unintelligable lines, multiple possible lines, and how the subjective perception of lines between the participants can be explored (one person mis-interprets a line etc. Creating lines with your Gaze, Hips, Tongue...)
